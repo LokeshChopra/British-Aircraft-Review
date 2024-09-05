@@ -22,7 +22,7 @@ Feel free to open issues, submit pull requests, or provide feedback to help impr
 
 
 Contact
-For any questions or comments, please contact your-chopralokesh61@gmail.com.
+For any questions or comments, please contact- chopralokesh61@gmail.com.
 contact number - 7339706928
 
 
